@@ -4,7 +4,7 @@
 - 💻 I’m currently working as Software Developer at Traceable Ai
 - 🌱 I’m currently learning open source
 - 💬 Ask me about I will answer
-- 📫 How to reach me: [My LinkedIn](https://www.linkedin.com/in/singh-viikram)
+- 📫 How to reach me: [My LinkedIn](https://www.linkedin.com/in/vikram-singh-60a2b0266/)
 - 😄 Pronouns: Vicky
 
 
